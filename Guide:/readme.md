@@ -1,0 +1,1 @@
+- [Best hobby soldering iron? Pinecil vs. Miniware, Hakko, Weller and Ersa](https://youtu.be/R2sPDQeGlj8)
