@@ -1,0 +1,3 @@
+- [Miniware TS101 Smart Soldering Iron Test & Review. TS101 vs Pinecil](https://youtu.be/XgzYn8qSlMc)
+- [SDG #275 Pinecil V2 PINE64 Open Source Soldering Iron - Test with PCBs from JLCPCB](https://youtu.be/-TosWhPsru4)
+- [$25 Pinecil Soldering Iron vs TS100](https://youtu.be/eme_AUayLp8)
