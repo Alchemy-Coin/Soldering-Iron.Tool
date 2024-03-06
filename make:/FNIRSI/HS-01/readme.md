@@ -1,0 +1,2 @@
+- [This Soldering Iron Is Actually Nice FNIRSI HS-01 Review](https://youtu.be/8TwQ5UTr2jI)
+- [FNIRSI HS-01: An intelligent and affordable soldering iron?](https://youtu.be/utPeZeCng2M)
